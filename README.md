@@ -1,1 +1,0 @@
-# TP3_vision_par_ordinateur-
